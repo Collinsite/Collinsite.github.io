@@ -21,7 +21,7 @@
 </p>
 
 
-<h3 align "left">Creative Profiles: </h3>
+<h3 align="left">Creative Profiles:</h3>
 
 Part Owner of **Blank Bros Media**.  Making Social Content with my brother in hopes of providing a mental vacation and adding laughter to your day. 
 
