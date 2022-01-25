@@ -1,2 +1,2 @@
-# Collinblank.github.io
-Hi I'm Collin Blank
+# Hi I'm Collin Blank
+I'm new to coding and programming
